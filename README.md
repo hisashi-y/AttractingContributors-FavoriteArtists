@@ -19,3 +19,4 @@ As for me, Pet Shop Boys is one of my favorite artist group! They started their 
 14. Kendrick Lamar
 15. MKTO
 16. Jackson Pollock
+17. Ado
