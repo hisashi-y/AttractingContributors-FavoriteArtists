@@ -20,3 +20,4 @@ As for me, Pet Shop Boys is one of my favorite artist group! They started their 
 15. MKTO
 16. Jackson Pollock
 17. Ado
+18. NIKI
